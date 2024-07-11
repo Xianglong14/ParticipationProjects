@@ -1,1 +1,1 @@
-# ParticipationProjects
+# Participation in Projects
